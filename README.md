@@ -4,6 +4,12 @@ https://speakerdeck.com/mjcoffeeholick/raio-x-de-ux
 
 ---
 
+Bootcamp TERA
+
+https://somostera.com/cursos/user-experience-design-intensivo/
+
+---
+
 Raio X de UX
 
 Palestra apresentada no evento CEJS 2018
